@@ -1,4 +1,4 @@
-Hola! I'm Luis. Me gusta aprender sobre tecnología.
+Hi! I'm Luis. I like to spend time with my family.
 
 - 🎥 I'm always watching a movie
 - 🌱 I’m currently learning French

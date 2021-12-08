@@ -27,5 +27,8 @@
 - Agrega el sofrito, las aceitunas, la salsa de tomate, el culantro y el cilatrillo , el sobre de sazón, el comino, el orégano, los gandules, el líquido, tápalo y cuécelo por unos minutos.
 - Incorpora el arroz sazónalo a tu gusto, déjalo cocinar sin tapa hasta que comience a evaporarse el líquido, muévelo y mézclalo bien. Agrégale el pimiento morrón cortado en tiritas sobre el arroz y no lo muevas más, tápalo.Deja cocinar por 15 minutos aproximadamente o hasta que el grano este completamente cocido.
 
+### Video:
+- https://www.youtube.com/watch?v=zG5fTpfMJcs&t=18s
+
 ### Referencias:
 https://sazonboricua.com/arroz-con-gandules-5/

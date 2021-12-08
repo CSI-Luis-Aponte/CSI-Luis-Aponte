@@ -31,4 +31,4 @@
 - https://www.youtube.com/watch?v=zG5fTpfMJcs&t=18s
 
 ### Referencias:
-https://sazonboricua.com/arroz-con-gandules-5/
+- https://sazonboricua.com/arroz-con-gandules-5/
